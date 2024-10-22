@@ -1,7 +1,6 @@
 rajraj
 rajrazzzzzj
 raaaa
-
-ta race la maudite mathieuuu !!! SAAAAALE
+mathieuuu !!! SAAAAALE
 
 Je suis trop bg
